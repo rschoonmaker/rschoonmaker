@@ -1,0 +1,5 @@
+- I’m @rschoonmaker
+- I’m interested in coding for aesthetics
+- I’m currently learning to ride a unicycle
+- I’m looking to collaborate on whatnot
+- How to reach me: go outside a yell my name really really loudly
